@@ -1,7 +1,7 @@
 # Climate Claims: Finding the facts in a "post-truth" world
 ## Evaluation of Roy Spencer's Article on the Validity of Anthropogenic Gobal Warming 
-### Ravi Verma 
-### October 24, 2021
+#### Ravi Verma 
+#### October 24, 2021
 
 Roy Spencer’s blog post titled *Global Warming: Natural or Manmade?* provides ideas on why scientists subscribe to anthropogenic global warming and why those reasons are faulty (Spencer, n.d.a). Roy Spencer is of particular interest as he has many titles including a Ph.D. in meteorology and a former climate scientist at NASA (Spencer, n.d.b). It is commendable that his research was never funded by private oil companies and instead entirely supported by government agencies including NASA  (Spencer, n.d.b).   
 
