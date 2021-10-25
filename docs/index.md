@@ -1,4 +1,3 @@
-# Climate Claims: Finding the facts in a "post-truth" world
 ## Evaluation of Roy Spencer's Article on the Validity of Anthropogenic Gobal Warming 
 #### Ravi Verma 
 #### October 24, 2021
