@@ -12,7 +12,6 @@ Roy’s academic titles, writing style, and methodology of dismantling the scien
 
 ## Works Cited
 
-
 Spencer, R., n.d.b About Roy Spencer. [Blog] Roy Spencer Global Warming. Available at: <http://www.drroyspencer.com/about/>.
 
 Spencer, R., n.d.a Global Warming: Natural or Manmade. [Blog] Roy Spencer Global Warming. Available at: <http://www.drroyspencer.com/global-warming-natural-or-manmade/>.
